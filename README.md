@@ -7,6 +7,6 @@ Hello, I'm Sema, I'm passionate about data analysis and information management. 
 2. University of Warmia and Mazury In Olsztyn,Poland / Erasmus Programme 2018-2019
 ## Contact Me
 1. LinkedIn: www.linkedin.com/in/sema-meydan
-2. E-Mail: semameydan832@gmail.com
+2. E-Mail: semameydansimsek@outlook.com
 
 
